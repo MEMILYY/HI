@@ -1,1 +1,14 @@
-# HI
+# <p align="center">
+
+<p align="left"">
+You can call me emery , emi , or any other nicknames you can think of ! I'm 16 so anyone 18+ intwec. 
+BASIC DNIS , pro/dark shippers esp rickorty shippers DNI !! 
+<p align="right">
+  
+- my current interests are Deltarune , Rick and Morty , ponytown obv , vocaloid , jjk , genshin impact (kinda quit tho..)  and I'm open to get into new media !
+
+<img src="https://i.postimg.cc/qgnSd11j/y81.gif" width="17">  this GITHUB is a work in progress... check out my other stuff for now AND DONT FORGET TO SIGN MY ATA I WILL RESPONDDD 
+</p>
+<p align="center">
+<img src="https://media.discordapp.net/attachments/1371799355140608074/1536096055374905374/3dgifmaker15035.gif?ex=6a7ad12e&is=6a797fae&hm=7f1fa7de9944410e159314d374e3a7191b5916f09188e7e485ee48e874dd0b7a&=" width="50">
+</p>
