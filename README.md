@@ -10,9 +10,12 @@ You can call me emery , emi , or any other nicknames you can think of ! I'm 16 s
 BASIC DNIS , pro/dark shippers esp rickorty shippers DNI !! 
 <p align="right">
   
-- my current interests are Deltarune , Rick and Morty , ponytown obv , vocaloid , jjk , genshin impact (kinda quit tho..) , devil may cry, resident evil, pocket Mortys,  + so much more and I'm open to get into new media !
+<img src="https://i.postimg.cc/qgnSd11j/y81.gif" width="17"> my current interests are Deltarune , Rick and Morty , ponytown obv , vocaloid , jjk , genshin impact (kinda quit tho..) , devil may cry, resident evil, pocket Mortys,  + so much more and I'm open to get into new media !
 
 <img src="https://i.postimg.cc/qgnSd11j/y81.gif" width="17">  this GITHUB is a work in progress... check out my other stuff for now AND DONT FORGET TO SIGN MY ATA I WILL RESPONDDD 
+
+
+if you see me on ponytown I'm usually in my Rick skin or gakupo skin with my GitHub on my account 🥹 FEEL FREE TO INT though you'll probably have to INT first since I'm usually afk or off tab + I'm really awkward.. C + H is encouraged ! 
 
 also if you cant tell I don't know how to use GitHub... I'll edit this anytime I think of stuff to add tho 
 </p>
